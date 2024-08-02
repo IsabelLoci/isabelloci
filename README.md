@@ -18,7 +18,9 @@ Here are some things I am passionate about:
 
 ## IMPORTANT LINKS
 [**LinkedIn**](https://www.linkedin.com/in/isabel-loci/)
+
 [**Github**](https://github.com/belbop)
+
 [**Resume**](https://drive.google.com/file/d/1O7yzgw2qmu1kiiichN-LdZeaYWDGBr3S/view?usp=sharing)
 
 ## PROJECTS
