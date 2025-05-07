@@ -21,7 +21,7 @@ Here are some things I am passionate about:
 
 [**Github**](https://github.com/belbop)
 
-[**Resume**]([https://drive.google.com/file/d/1O7yzgw2qmu1kiiichN-LdZeaYWDGBr3S/view?usp=sharing](https://docs.google.com/document/d/1H3dfcVfXuPDF89PeJYz1eefMLj494RoJAPy92qDhA54/edit?usp=sharing))
+[**Resume**]([https://drive.google.com/file/d/1O7yzgw2qmu1kiiichN-LdZeaYWDGBr3S/view?usp=sharing](https://docs.google.com/document/d/1H3dfcVfXuPDF89PeJYz1eefMLj494RoJAPy92qDhA54/edit?usp=sharing)
 
 ## PROJECTS
 TBA
